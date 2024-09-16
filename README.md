@@ -1,9 +1,9 @@
-- 👋 Hi, I’m @yoppsmallaf
-- 👀 I’m interested in yomama
-- 🌱 I’m currently learning how to f yo mama up
-- 💞️ I’m looking to collaborate on yo mama's pussy
+- 👋 Hi, I’m @yoppsmallaf.
+- 👀 I’m interested in yomama.
+- 🌱 I’m currently learning how to f yo mama up.
+- 💞️ I’m looking to collaborate on yo mama's pussy.
 - 📫 How to reach me: you just can't, but your mama sure can.
-- 😄 Pronouns: call that nigga
+- 😄 Pronouns: You can call me that nigga.
 - ⚡ Fun fact: I'm not even a nigga.
 
 <!---
